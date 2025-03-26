@@ -1,2 +1,2 @@
 # amends
-**1 :** sufficient communication of repentance to an injured party
+**1 :** substantiation of one’s repentance
